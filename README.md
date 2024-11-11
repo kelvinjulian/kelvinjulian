@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-I am currently a student at an Indonesian educational university
+I am currently a student at Indonesia University of Education
 
 
 ## 🌐 Socials:
